@@ -1,4 +1,4 @@
-# IsItCheapYet, Time Purchases, Save Money
+# IsItCheapYet, Time Purchases, Save Money 💰
 
 I had a issue with Old Navy growing up. No matter how where I looked, I always saw a "sale!" on items I wanted, but still felt too expensive. Even after waiting months, the same items were still on sale, and it got me thinking.
 
